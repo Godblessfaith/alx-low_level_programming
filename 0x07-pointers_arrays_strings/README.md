@@ -1,0 +1,1 @@
+Let look at more pointers, Arrays and Strings[D[D[D[D[D[D[D[D[D[D[D[D[D[D[D[D[D[D[D[D[D[D[D[D[D[D[D[D[D[D[D[D[D
